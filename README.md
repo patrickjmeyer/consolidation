@@ -1,1 +1,7 @@
-Hi! This is my consolidation project, where I'll be fleshing out a couple of song ideas in Ableton Live. One of them, Hey Lover, has a partial demo already in my website portfolio. I'll be doing a full demo of that song from scratch with vocals later this week. What I have for now is a preview of a song I've been meaning to demo for a while titled Brighter Days. I had a family commitment over the weekend, so this is what I was able to get done in about 6 hours between yesterday and today. I'm pretty well on my way to having a skeleton of the full track, as there is a fair amount of repetition of what I've already tracked here. Hope it makes you excited for what is to come!
+Hi! This is my consolidation project, where I've put together a full demo of a song idea I've had for a while called Brighter Days. There's a lot else I'd like to do with this tune with more time, particularly in terms of making the vocals sound better (retracking and mixing everything) and mixing/mastering, but here's where I was able to get in a week. I'm very proud of the instrumental and less proud of the vocal as of rn. I'm not in love with the chorus I came up with and I think I was torn with the lyrics in terms of it being a conscious song vs a personal thing, but here we are. Maybe I'll put a different version out for the public someday.
+
+I've also added this to the audio page of my website portfolio.
+
+Enjoy!
+
+-Patrick Meyer
